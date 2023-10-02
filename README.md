@@ -1,2 +1,2 @@
-sunakar sahoo from odisha.
+sunakar sahoo
 Author - Sunakar Sahoo
